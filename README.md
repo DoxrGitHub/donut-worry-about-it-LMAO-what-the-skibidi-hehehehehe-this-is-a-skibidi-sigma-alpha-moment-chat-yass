@@ -1,0 +1,2 @@
+# donut-worry-about-it-LMAO-what-the-skibidi-hehehehehe-this-is-a-skibidi-sigma-alpha-moment-chat-yass
+Donut 🍩🍩🍩 worry about it (XD XD XD) &lt;3 &lt;3 :3  &lt;:3 (:3 but with hat :OOOOOOOO) am I funny chat am I funny was that funny to you rate my joke from 1 to 10 where 10 is the worst HAHA you thought it was the other way around right hahahahahaha thats cus youre an idiot and I'm a sigma alpha :3 nothing you can do about the Sigma Alpha being skibidi
